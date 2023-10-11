@@ -10,5 +10,6 @@
 4. BBQ Chicken
 5. Corn
 6. Served with Chilly Flakes and Oregano
+7. pineapple
 
 ~~***Olives to be avoided***~~
